@@ -1,4 +1,4 @@
 # Software Developer 
 
-##Education
+## Education
 PKP Swamy Matric hr sec school
